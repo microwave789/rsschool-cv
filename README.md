@@ -1,1 +1,1 @@
-# rsschool-cv
+https://microwave789.github.io/rsschool-cv/cv
